@@ -48,7 +48,7 @@ Here are a few highlights of my work:
 ## 📫 How to reach me:
 
 * **Email:** hritikblcm@gmail.com 
-* **LinkedIn:** [linkedin.com/in/sahil-kasaudhan-7558252a1](https://www.linkedin.com/in/sahil-kasaudhan-860167378) 
+* **LinkedIn:** [linkedin.com/in/sahil-kasaudhan-860167378](https://www.linkedin.com/in/sahil-kasaudhan-860167378) 
 * **GitHub:** [@Hritik930](https://github.com/Hritik930) 
 
 ## 😄 Pronouns:
